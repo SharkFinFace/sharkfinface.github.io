@@ -1,2 +1,1 @@
-# Keep an eye on me! :)
-Stuff'll come soon...
+[Discord](https://discord.gg/j8YuevBwt6)
